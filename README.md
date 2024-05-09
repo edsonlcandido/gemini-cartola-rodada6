@@ -1,1 +1,1 @@
-# gemini-cartola-rodada8
+# gemini-cartola-rodada6
